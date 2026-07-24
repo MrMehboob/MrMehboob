@@ -47,7 +47,7 @@ AI Integration in Enterprise Applications
 
 📫 How to reach me
 
-Email: mehboobkhan2507@gmail.com
+Email: khan.mehboob7@gmail.com and mehboobkhan2507@gmail.com 
 LinkedIn: www.linkedin.com/in/mehboob-khan
 
 ⚡ Fun fact
